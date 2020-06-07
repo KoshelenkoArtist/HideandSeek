@@ -31,7 +31,7 @@ Presenter (s)
  
 Maria Koshelenko
  
-Trailer of our exhibition: https://youtu.be/y9T_QPNOckk
+
  
 Bio for all presenters:
  
